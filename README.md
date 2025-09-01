@@ -1,3 +1,3 @@
-# aktivite.github.io
+# Aktivite.
 
 Mukarnas Otel Aktivite..
